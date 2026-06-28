@@ -1,4 +1,4 @@
-# 
+# New sandwich attack bot extensions for Mac OS | Updated sandwich attack bot extensions for PC Windows. Featuring take-profit orders and order execution — optimized for maximum performance on every platform.
 
 
 
